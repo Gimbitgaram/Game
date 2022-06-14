@@ -1,5 +1,1 @@
-# Game
 
-asetawet
-kldkdkdsklatglkjdstlktsad
-ㄴ몰ㄴㄹㅇ뫄ㅕㅁㅁㄴㄷ로ㅕㅏ도ㅕㅏㄴ매ㅏㄷㄴ뫰ㄴㄷㄹ
